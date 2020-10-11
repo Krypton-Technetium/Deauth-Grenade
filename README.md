@@ -5,4 +5,4 @@ Hi , I am Krypton , and This project is aimed to make the deauth procedure with 
 This script might not be available in its starting days , but I will provide the INCOMPLETE script soon , so that i can get suggeestions from you all , Thanks For coming.
 *********************************************************************************************************************************************************
 you can contact me on Discord on :Vladmir Lenin II#2409
-Thanks a lot for considering me
+:Thanks a lot for considering me
